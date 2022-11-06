@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @1471155912
 - 👀 I’m interested in Aerospace technology
 - 🌱 I’m currently learning many science knowleage
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on everyone who has correct values and heart of changing our life by STEM
 - 📫 How to reach me ???
 
 <!---
